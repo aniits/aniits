@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @aniits
+- 👀 I’m interested in ed tech
+- 🌱 I’m currently learning ...
+- 💞️ I’m looking to collaborate on ...
+- 📫 How to reach me - connect here on github or email. 
+- 😄 Pronouns: she/her
+- ⚡ Fun fact: WIP
